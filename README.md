@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @Juakideveloperrooo
-- 👀 I’m interested in becoming an blockchain developer!
-- 🌱 I’m currently learning M1, ING COMERCIAL, blockchain development.
+- 👋 Hi, I’m @juakieficienteai
+- 👀 I’m interested in becoming an startup founder!
+- 🌱 I’m currently learning, ING negocios y tecnologia, blockchain development and bussines founding.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 😄 Pronouns: MEN
