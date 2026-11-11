@@ -1,5 +1,5 @@
-- I’m @juakieficienteai
-- I’m interested in becoming an startup founder.
+- I’m @Juakideveloperrooo
+- I’m interested in becoming a startup founder.
 - blockchain development, AGaas and bussines founding.
 - Pronouns: MEN
 - Fun fact: Amateur Boxer.
